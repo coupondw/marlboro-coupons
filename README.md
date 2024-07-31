@@ -1,4 +1,4 @@
-## MARLBORO COUPONS $25 OFF CARTON | Discount Coupon Grab now..!! 
+# MARLBORO COUPONS $25 OFF CARTON | Discount Coupon Grab now..!! 
 
 Let's cut to the chase. You want to know where to find these golden tickets, right? Here's the lowdown:
 
